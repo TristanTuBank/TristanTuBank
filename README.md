@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TristanTuBank
+- 👀 I’m interested in creating an open platform for global financial empowerment.
+- 🌱 I’m currently learning how to do that.
+- 💞️ I’m looking to collaborate on helping people help people
+- 📫 How to reach me tristanthoma@tubank.io
